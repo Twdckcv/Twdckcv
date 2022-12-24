@@ -8,4 +8,3 @@ Currently I am reading The Art of Deception by Kevin Mitnick and William L. Simo
 Lastly, my favourite quote is "Progress Is Never Linear"
 
 📧 If you wish to reach me you can email be at iamcrubaiat@gmail.com
-or you could reach me on discord Death21#7377
